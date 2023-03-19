@@ -3,7 +3,7 @@
 
 - 💬 Ask me about **UI/UX**
 
-- 📫 How to reach me **Bagusrezky15@gmail.com**
+- 📫 you can contact me in **Bagusrezky15@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
